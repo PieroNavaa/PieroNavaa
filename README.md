@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PieroNavaa
+- 🌱 I’m only learning
+- jelou world
